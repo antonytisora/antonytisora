@@ -1,4 +1,4 @@
-### Bem vindo ao meu perfil 💙
+bem vindo a  o meu perfil
 
 Meu nome é Antony
 
@@ -10,8 +10,7 @@ Meu nome é Antony
 
 g.antony@escola.pr.gov.br
 
-@antony.tsr
+![](https://media.tenor.com/4tdgVCWep1IAAAAM/regele-fotbalului-regele.gif)
 
-![](![image](https://github.com/antonytisora/antonytisora/assets/132944950/d2c16fe7-d1c9-4302-8a17-391d062b1570)
-
-
+![](https://img.shields.io/badge/Instagram-E4405F?style=for-the-badge&logo=instagram&logoColor=white)
+(https://www.instagram.com/@antony.tsr)
