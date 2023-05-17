@@ -16,4 +16,4 @@ g.antony@escola.pr.gov.br
 (https://www.instagram.com/antony.tsr)
 
 ![](https://img.shields.io/badge/TikTok-000000?style=for-the-badge&logo=tiktok&logoColor=white)
-(https://www.tiktok.com/ANTONY777)
+(https://www.tiktok.com/antony.tsr0)
